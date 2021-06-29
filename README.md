@@ -8,9 +8,3 @@
    *👯 I’m looking to collaborate with beginners in coding.
    
    *📫 Reach me through : devendargorla@gmail.com
-   
-   
-   Gmail : (devendargorla@gmail.com)
-   
-
-
